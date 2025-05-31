@@ -1,16 +1,26 @@
-## Hi there 👋
+## [🤍] . princess twotime
 
-<!--
-**priincesstwotime/priincesstwotime** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"
+  
+xe/they/he, we/us
 
-Here are some ideas to get you started:
+<p align="center"
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+AZURE OR SEAN!!! 
+
+c+h encouraged we dont mind cudpile and c+h in general no need to ask, whisper us throughly if you wanna talk.
+
+<p align="center"
+  
+**STATUS**
+
+🌙 . afk or sleeping
+
+🚫 . online (sometimes we are offtab so slow reply.)
+
+<p align="center"
+
+we dont play with status often
+
+check out our main for more info this is just a account dedicated to our comfkin
+![1000006496](https://github.com/user-attachments/assets/3a178223-bc6f-4b02-9228-a2a7ca923bb4)
